@@ -1,0 +1,10 @@
+There once was a small island kingdom surrrounded by a lush tropical forest. 
+The forest was full of vegetation and interesting animals different shapes and sizes. 
+Most of the animals went about their day looking for food, hiding from predators, staying within their layer of the rainforest, whether that be canopy, understory, or forest floor.
+ One of these animals was a Day gecko named Gordon, who could be fiesty if you stepped into his turf. He might bark and yell,"Get off my tree" like he owned it. 
+-----ending a
+Gordon spent the entire afternoon screaming at a passing family of toucans, entirely consumed by defending his precious bark layout. 
+He was so busy shaking his tiny fist and yelling at the sky that he completely failed to notice the shifting weather patterns above. 
+A sudden, massive tropical downpour slammed into the canopy, and a single giant raindrop knocked Gordon right off his operations post. 
+He tumbled down through the understory, landing with a soft plop into a pile of damp leaves on the forest floor. 
+Wet, humbled, and temporarily displaced from his high-contrast kingdom, Gordon decided he might keep his mouth shut for at least the rest of the evening
